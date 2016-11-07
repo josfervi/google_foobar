@@ -1,0 +1,1 @@
+My solutions to google&#39;s secret challenges. Engage in clandestine guerrilla warfare against the evil Dr Boolean. You are the Rabbit Resistance. Stealthily sabotage his efforts. Thwart. Undermine, etc.
